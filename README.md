@@ -1,4 +1,4 @@
-### Greetings, I'm [Owen Webb](https://owebb1.github.io/MyPortfolio/). 👋
+### Greetings, I'm [Owen](https://owebb1.com/). 👋
 
 ---
 <p align="center">
